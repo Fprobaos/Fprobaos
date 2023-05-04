@@ -1,6 +1,6 @@
 # 💫 About Me:
 My name is Felipe, 
-I'm a responsible 22 year old boy eagering to fin a position where I can offer my dedicated work. 
+I'm a responsible 22 year old boy eagering to find a position where I can offer my dedicated work. 
 I'm motivated and ready to give my best in upcoming challenges!
 
 
